@@ -1,3 +1,3 @@
 Progetto sviluppato da:
-Alligrande Eugenio, 0334000168
-Esposito Pasquale, 0334000133
+Alligrande Eugenio (matricola 0334000168)
+Esposito Pasquale, (matricola 0334000133)
